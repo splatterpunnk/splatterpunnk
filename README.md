@@ -1,4 +1,5 @@
-![tumblr_inline_n37t9kLv4H1qhwjx8540](https://github.com/user-attachments/assets/048b27da-dad4-4701-b19b-59542700f5e5)
+![2498269_4dcf9](https://github.com/user-attachments/assets/d6391e26-1b62-4a49-98a7-4b4a74994ebc)
+
 
 
 look through a faithless eye, are you afraid to die?
