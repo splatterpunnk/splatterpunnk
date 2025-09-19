@@ -1,4 +1,5 @@
-![2498269_4dcf9](https://github.com/user-attachments/assets/d6391e26-1b62-4a49-98a7-4b4a74994ebc)
+
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=sou1punK)
 
 
 
