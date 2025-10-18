@@ -1,8 +1,4 @@
-<img width="200" height="200" alt="imagen_2025-10-18_191315915-removebg-preview-removebg-preview" src="https://github.com/user-attachments/assets/11d19c61-2ff9-449c-9ac3-cbe0e9ff148f" />
-
-
-
-![](https://komarev.com/ghpvc/?username=sou1punKe&label=tacos&color=cfa251&base=400) 
+<img width="200" height="200" alt="imagen_2025-10-18_191315915-removebg-preview-removebg-preview" src="https://github.com/user-attachments/assets/11d19c61-2ff9-449c-9ac3-cbe0e9ff148f" />      ![](https://komarev.com/ghpvc/?username=sou1punKe&label=tacos&color=cfa251&base=400) 
 
 
 while spinal fluid acts as lube, speeding up this vile act
