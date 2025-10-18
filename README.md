@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=sou1punKe&label=tacos&color=6b0000&base=400)
+![](https://komarev.com/ghpvc/?username=sou1punKe&label=tacos&color=0a0a0a&base=400)
 
 
 
