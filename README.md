@@ -1,10 +1,11 @@
-<img width="200" height="200" alt="imagen_2025-10-18_191315915-removebg-preview-removebg-preview" src="https://github.com/user-attachments/assets/11d19c61-2ff9-449c-9ac3-cbe0e9ff148f" />      ![](https://komarev.com/ghpvc/?username=sou1punKe&label=tacos&color=cfa251&base=400) 
+![](https://komarev.com/ghpvc/?username=sou1punKe&label=tacos&color=a6051a&base=400) 
+
+![uStExAX5C7](https://github.com/user-attachments/assets/6ee7d39d-7bb1-4914-9674-1237a3f91789)
+
+<img width="314" height="477" alt="image" src="https://github.com/user-attachments/assets/12bb51e5-1deb-462c-9e8d-3078db9d03aa" />
 
 
-while spinal fluid acts as lube, speeding up this vile act
-
-<img width="400" height="200" alt="imagen_2025-10-18_191425248-removebg-preview" src="https://github.com/user-attachments/assets/a44db434-0c67-45be-8e6e-c1cebd5c51b7" />
-
+![zf5xCn48gG](https://github.com/user-attachments/assets/50246682-27a7-41b1-bbf6-dcc09bad3e15)
 
 
 
