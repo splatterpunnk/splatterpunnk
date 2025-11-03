@@ -1,11 +1,5 @@
-![](https://komarev.com/ghpvc/?username=sou1punKe&label=tacos&color=a6051a&base=400) 
+![](https://komarev.com/ghpvc/?username=sou1punKe&label=tacos&color=0c0c0d&base=400) 
 
-![uStExAX5C7](https://github.com/user-attachments/assets/6ee7d39d-7bb1-4914-9674-1237a3f91789)
-
-<img width="314" height="477" alt="image" src="https://github.com/user-attachments/assets/12bb51e5-1deb-462c-9e8d-3078db9d03aa" />
-
-
-![zf5xCn48gG](https://github.com/user-attachments/assets/50246682-27a7-41b1-bbf6-dcc09bad3e15)
 
 
 
