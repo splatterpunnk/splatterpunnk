@@ -3,11 +3,10 @@
 </p>
 <p align="center">
   <img 
-    width="736" 
-    height="414" 
-    alt="f25bdaef66a0cb661fc097ec4552a564" 
-    src="https://github.com/user-attachments/assets/04d4345d-7ef0-490a-a5cd-0200ce36385f"
-  />
+width="736" 
+height="414"
+src="https://github.com/user-attachments/assets/d3e910b4-4c38-4aa6-9e3d-e3ad3f4d74bc"
+
 </p>
 
 
