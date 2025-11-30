@@ -3,9 +3,9 @@
 </p>
 <p align="center">
   <img 
-width="736" 
+width="280" 
 height="414"
-src="https://github.com/user-attachments/assets/d3e910b4-4c38-4aa6-9e3d-e3ad3f4d74bc"
+src=https://github.com/user-attachments/assets/bee7fcd5-39e8-45b4-8589-56951e24028f
 
 </p>
 
