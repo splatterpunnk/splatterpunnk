@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=Emetophiliae&label=sparks&color=802000&base=1495" />
+  <img src="https://komarev.com/ghpvc/?username=Emetophiliae&label=sparks&color=ffa552&base=1495" />
 </p>
 <p align="center">
   <img 
