@@ -1,11 +1,12 @@
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=Emetophiliae&label=sparks&color=f2f1eb&base=1495" />
+  <img src="https://komarev.com/ghpvc/?username=Emetophiliae&label=sparks&color=229c63&base=1495" />
 </p>
 <p align="center">
   <img 
-width="280" 
-height="414"
-src="https://github.com/user-attachments/assets/0100c374-9b81-459d-9d76-32ecd25c3afb"
+width="600" 
+height="800"
+src="https://github.com/user-attachments/assets/30c635e6-b518-4090-a02a-736c172377ae" />
+
 
 
 
